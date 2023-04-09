@@ -1,0 +1,1 @@
+I am writing to request a leave of absence from work for a period of 5 days, starting from 27-04-2023 to 04-05-2023. The reason for my leave is to participate in my mother's Almsgiving ceremony at my home in Sri Lanka, which is an important religious tradition in my family.I would be grateful if you could grant me the leave.
